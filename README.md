@@ -1,1 +1,1 @@
-# Alisher92.github.kz
+# Alisher92.github.io
